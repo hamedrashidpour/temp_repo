@@ -2,6 +2,6 @@
 
 baba be khode balad nistam:)
 
-delam to ro mikhad
+delam to ro nemikhad
 
 
